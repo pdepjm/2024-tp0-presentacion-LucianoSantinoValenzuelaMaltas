@@ -14,6 +14,8 @@ Me llamo Luciano Santino Valenzuela Maltas, tengo 19 hasta mañana, y este es mi
 
 - Puede que tenga pinta de salir de joda, pero en realidad vivo encerrado en mi pieza.
 
+- Como a todo alumno de sistemas, soy fanático de videojuegos, siendo mi favorito el Need For Speed Most Wanted (de 2005).
+
 ### Legajo: 214.201-6
 
 ## Foto Personal
