@@ -1,6 +1,6 @@
 # TP0 "Mi Presentación"
 
-Me llamo Luciano Santino Valenzuela Maltas, tengo 19 hasta mañana, y este es mi 2do año en la UTNBA.
+Me llamo Luciano Santino Valenzuela Maltas, tengo 20 recién cumplidos, y este es mi 2do año en la UTNBA.
 
 ## Algunas cosas sobre mí
 
